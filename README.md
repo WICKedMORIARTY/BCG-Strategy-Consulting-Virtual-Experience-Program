@@ -6,5 +6,5 @@ So what exactly is a virtual experience program? It is the perfect opportunity t
 
 In this virtual experience program, I have gained enviable insight into what it’s like to solve meaningful challenges with BCG's diverse and forward-thinking team. What’s great about this virtual experience program is the flexibility of it. I got to choose the module or modules that I would like to take and complete all of these tasks and modules anywhere and anytime in the world, allowing  to me to upskill myself in my own time and pace.
 
-After finishing each module, I was be provided with real work sample answers from the leaders and I could see how top-tier consultants would have tackled each task, so that I can learn from their approach.
+After finishing each module, I was provided with real work sample answers from the leaders and I could see how top-tier consultants would have tackled each task, so that I can learn from their approach.
 
